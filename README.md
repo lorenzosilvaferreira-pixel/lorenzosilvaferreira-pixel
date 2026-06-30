@@ -1,4 +1,4 @@
-## Hi there 👋
+Lorenzo
 - Sou estudante 📫
 - Gosto de jogar futebol🏀
 - Gosto de tecnologia🧑‍💻
