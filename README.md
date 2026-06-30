@@ -1,5 +1,5 @@
 Lorenzo
-- Sou estudante 📫
+- Sou estudante 🙇
 - Gosto de jogar futebol🏀
 - Gosto de tecnologia🧑‍💻
 - Gosto de aprender coisas novas 💬
